@@ -1,0 +1,1 @@
+Most things are under copyright 
